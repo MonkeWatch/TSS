@@ -11,7 +11,8 @@ Show up that you care enough and are active in Scrims and Tournaments. Unless yo
 - Branching
 
 ## Notes
-
+League Rules are from Official Gorilla Tag COMP Discord Server.
+Tryouts are on SATURDAY or SUNDAY.
 
 ## League
 ### League Rules~
