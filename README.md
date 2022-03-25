@@ -12,6 +12,9 @@ Show up that you care enough and are active in Scrims and Tournaments. Unless yo
 
 ## Notes
 League Rules are from Official Gorilla Tag COMP Discord Server.
+
+https://tiny.one/tssapply10
+
 Tryouts are on SATURDAY or SUNDAY.
 
 ## League
