@@ -1,4 +1,3 @@
-# TSS
 ## monkewatch.github.io/tss
 TSS is a League and Team of Gorilla Tag players and most importantly a friend group.
 
